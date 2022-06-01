@@ -1,0 +1,2 @@
+# perdi
+Suka berbagi
